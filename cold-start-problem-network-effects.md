@@ -43,4 +43,4 @@ Meerkat’s Law
 
 The Allee Curve
 
-![Untitled](https://s3-us-west-2.amazonaws.com/secure.notion-static.com/1412c160-6534-4cc7-b18e-d54f94048ad4/Untitled.png)
+![Untitled](https://i.pinimg.com/originals/90/c4/95/90c495ae6bafd43a878113ab97a9b68d.jpg)
